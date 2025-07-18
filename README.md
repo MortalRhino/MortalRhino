@@ -10,3 +10,4 @@ Did you change her IG account? Blocks, etc.
 Yes, they were associated hacked accounts...
 Still being tracked!
 Trying But she's still on iy??
+Tracking location?
