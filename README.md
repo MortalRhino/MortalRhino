@@ -11,3 +11,4 @@ Yes, they were associated hacked accounts...
 Still being tracked!
 Trying But she's still on iy??
 Tracking location?
+still getting tracked and there is a new email on proton
